@@ -1,3 +1,4 @@
+![profile_banner_dc_large](https://github.com/WarriorDeere/WarriorDeere/assets/107566982/6c98a099-6d26-4a96-915c-f28c5882d367)
 ## Hello there :v:
 
 :metal: Glad you found your way here.
